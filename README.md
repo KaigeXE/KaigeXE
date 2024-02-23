@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @KaigeXE
-- 😃 I'm 12 years old now!
+- 😃 Thank u for come and visit my code!
