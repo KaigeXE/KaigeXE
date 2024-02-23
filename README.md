@@ -1,2 +1,3 @@
 - 👋 Hi, I’m @KaigeXE
-- 😃 Thank u for come and visit my code!
+- 😃 Thank u for come and visit me!
+- 😬 A junior school student.
